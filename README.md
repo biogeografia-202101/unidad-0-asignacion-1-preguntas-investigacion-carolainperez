@@ -1,6 +1,6 @@
 # Mis preguntas de investigación
 
-Mi familia de plantas asignada es: Polygonaceae
+Mi familia de plantas asignada es: Salicaceae
 
 Elegí la siguiente combinación de temas/preguntas: ABCE
 
